@@ -1,7 +1,7 @@
-# <a href="https://cutt.ly/PeN2trI8">Bahisbey ⭐ Güvenilir Bahis ve Casino Adresi</a>
+# <a href="https://heylink.me/denemebonusu2025/">Bahisbey ⭐ Güvenilir Bahis ve Casino Adresi</a>
 Bahisbey, kullanıcılarına yüksek oranlar, hızlı ödeme yöntemleri ve cazip bonuslar sunan bir platformdur. Şimdi giriş yapın ve kazançlı dünyaya adım atın.
 
-<a href="https://cutt.ly/PeN2trI8" title="Bahisbey Güncel Adres">
+<a href="https://heylink.me/denemebonusu2025/" title="Bahisbey Güncel Adres">
     <img src="https://i.ibb.co/0GjFGxP/siteye-giris-linki.png" alt="Bahisbey Güncel Adres" style="max-width: 100%; border: 2px solid #ddd; border-radius: 10px;">
 </a>
 
